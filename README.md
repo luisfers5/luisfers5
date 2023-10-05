@@ -3,3 +3,6 @@
 
 ### Hi there 👋
 
+## I'm student I want to become Data Analyst
+# Currently working as Finance Analyst
+
